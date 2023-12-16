@@ -16,8 +16,6 @@
 
 - 📫 How to reach me **meghalaeshwar@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1z9_B-wQ_e1iiZHeOcozScIyqHDL3DP5x/view](https://drive.google.com/file/d/1z9_B-wQ_e1iiZHeOcozScIyqHDL3DP5x/view)
-
 - ⚡ Fun fact **I think I am funny**
 
 <h3 align="left">Connect with me:</h3>
